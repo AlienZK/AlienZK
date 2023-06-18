@@ -1,0 +1,1 @@
+ AlienZK Token aims to increase awareness of extraterrestrial visits observed worldwide, and it falls under the meme token category. Although it is impossible to predict what the future holds, we present you with a fun project 
